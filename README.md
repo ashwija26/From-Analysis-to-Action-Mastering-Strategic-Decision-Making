@@ -15,6 +15,6 @@ Start Your Strategic Decision Making Training Today
 
 Develop practical skills to analyze challenges, evaluate options, manage risks, and turn informed decisions into effective action.
 
-Course link : https://www.sterlingnext.com/course/strategic-decision-making-certification-training?utm_source=github.com&utm_medium=referral&utm_campaign=strategic_decision_making_web20
+Visit Course link : https://www.sterlingnext.com/course/strategic-decision-making-certification-training?utm_source=github.com&utm_medium=referral&utm_campaign=strategic_decision_making_web20
 
-Website link : https://www.sterlingnext.com/?utm_source=github.com&utm_medium=referral&utm_campaign=web20_backlinking
+Visit Website link : https://www.sterlingnext.com/?utm_source=github.com&utm_medium=referral&utm_campaign=web20_backlinking
